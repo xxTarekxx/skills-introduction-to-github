@@ -1,1 +1,0 @@
-VWelcome to my GitHub profile!
